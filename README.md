@@ -1,0 +1,1 @@
+# pradeep-k-analyst-AtliQ_Hardwares_Financ-_Analytics_And_Top_Product_Market_Customer_Analytics--SQL
